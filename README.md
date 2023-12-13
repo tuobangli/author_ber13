@@ -1,5 +1,5 @@
 # author_ber13
 waiting  
-SEVIS Number 
-Exchange Number
+J-1
+visiting student researcher
 DS-2019
