@@ -3,5 +3,5 @@ waiting
 
 visiting student researcher
 
-others who first read the email today
+others who first three read the email today, I will send them all.
 
