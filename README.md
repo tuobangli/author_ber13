@@ -3,6 +3,5 @@ waiting
 
 visiting student researcher
 
-others who first read the email today or tomorrow or the day after tomorrow.
-
+find other berkeley professors havn't send email
 
