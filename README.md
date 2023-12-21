@@ -1,7 +1,4 @@
 # author_ber13
-waiting  
 
-visiting student researcher
-
-find other berkeley professors havn't send email
+go to another country that has US consulate
 
