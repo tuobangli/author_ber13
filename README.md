@@ -1,4 +1,4 @@
 # author_ber13
 
-go to another country that has US consulate
+waiting for DS-2019, visa in Jakarta.
 
