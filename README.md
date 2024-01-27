@@ -1,1 +1,1 @@
-already apply for doudna's lab, waiting for reply.
+reapply for doudna's lab.
