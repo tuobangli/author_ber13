@@ -1,3 +1,3 @@
-sent for doudna's lab, waiting for reply.
+resent for doudna's lab
 
-8
+13
