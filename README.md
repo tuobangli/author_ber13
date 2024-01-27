@@ -1,1 +1,1 @@
-To Fedex tomorrow, a brief letter.
+already apply for doudna's lab, waiting for reply.
