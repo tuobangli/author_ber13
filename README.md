@@ -1,1 +1,1 @@
-reapply for doudna's lab.
+sent for doudna's lab, waiting for reply.
