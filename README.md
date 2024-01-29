@@ -1,2 +1,2 @@
 resent for doudna's lab.
-24
+30
