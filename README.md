@@ -1,2 +1,2 @@
-already resent for doudna's lab, waiting for reply.
-13
+aresent for doudna's lab.
+19
